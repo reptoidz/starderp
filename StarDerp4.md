@@ -1,22 +1,29 @@
 # Star Derp 4
 ## The one with the whales
 
-“I’m trying to re-entangle the quantum connection,” said Ensign Syrinx. 
-“Re-entangle faster ensign” said Captain Dansup.
+>“I’m trying to re-entangle the quantum connection,” said Ensign Syrinx. 
+>“Re-entangle faster ensign” said Captain Dansup.
+
 The U.S.S URLCloud Prime was surrounded by the Federation of FINN’s Rape Fleet. It was trying to hail the Universal United Nations for orders.
-“I don’t think we can wait for orders. Let’s engage” said Dansup. 
-“Yes, Captain,” said Syrinx. 
-“Charge space lasers to overdrive,” said Dansup. 
-“Lasers are now in overdrive,” said Syrinx. 
-“Fire!” yelled Dansup.
+
+>“I don’t think we can wait for orders. Let’s engage” said Dansup. 
+>“Yes, Captain,” said Syrinx. 
+>“Charge space lasers to overdrive,” said Dansup. 
+>“Lasers are now in overdrive,” said Syrinx. 
+>“Fire!” yelled Dansup.
+
 The U.S.S URLCloud Prime fired its space lasers at the Rape Fleet. It also targeted critical systems on the mothership.
-“Fire at their RAM drive thrusters,” said Dansup. 
-“Direct hit,” said Syrinx. 
-“Fuck yeah, totes motherfuckers,” said Dansup.
-FINN’s Rape Fleet was in disarray. The mothership was hit badly and its main RAM drive thrusters were about to reverse the code polarity.
-“Plot a course for the fuck out of here!”  Dansup commands. 
-“Course set,” said Syrinx. 
-“Make it 5eva,” said Dansup.
+
+>“Fire at their RAM drive thrusters,” said Dansup. 
+>“Direct hit,” said Syrinx. 
+>“Fuck yeah, totes motherfuckers,” said Dansup.
+
+FINN’s Rape Fleet was in disarray. The mothership was hit badly and its main RAM drive thrusters were about to reverse the
+code polarity.
+
+>“Plot a course for the fuck out of here!”  Dansup commands. 
+>“Course set,” said Syrinx. 
+>“Make it 5eva,” said Dansup.
 
 The ship entered ridiculously fast mode and traveled at warp speed 19 to the Universal United Nations main headquarters in the Kuiper belt. Just as they torpedoed through the universe, the mothership exploded sending cacti in all directions. The surrounding ships got their engines clogged by cacti and then exploded because they couldn’t vent quantum plasma.
 
