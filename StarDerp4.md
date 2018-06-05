@@ -1,5 +1,5 @@
-#Star Derp 4
-##The one with the whales
+# Star Derp 4
+## The one with the whales
 
 “I’m trying to re-entangle the quantum connection,” said Ensign Syrinx. 
 “Re-entangle faster ensign” said Captain Dansup.
