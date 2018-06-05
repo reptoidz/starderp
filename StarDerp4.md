@@ -1,57 +1,60 @@
 # Star Derp 4
 ## The one with the whales
 
->“I’m trying to re-entangle the quantum connection,” said Ensign Syrinx. 
->“Re-entangle faster ensign” said Captain Dansup.
+>“I’m trying to re-entangle the quantum connection,” said Ensign Syrinx.  
+>“Re-entangle faster ensign” said Captain Dansup.  
 
-The U.S.S URLCloud Prime was surrounded by the Federation of FINN’s Rape Fleet. It was trying to hail the Universal United Nations for orders.
+The U.S.S URLCloud Prime was surrounded by the Federation of FINN’s Rape Fleet. It was trying to hail the Universal United Nations for orders.  
 
->“I don’t think we can wait for orders. Let’s engage” said Dansup. 
->“Yes, Captain,” said Syrinx. 
->“Charge space lasers to overdrive,” said Dansup. 
->“Lasers are now in overdrive,” said Syrinx. 
->“Fire!” yelled Dansup.
+>“I don’t think we can wait for orders. Let’s engage” said Dansup.  
+>“Yes, Captain,” said Syrinx.  
+>“Charge space lasers to overdrive,” said Dansup.  
+>“Lasers are now in overdrive,” said Syrinx.  
+>“Fire!” yelled Dansup.  
 
-The U.S.S URLCloud Prime fired its space lasers at the Rape Fleet. It also targeted critical systems on the mothership.
+The U.S.S URLCloud Prime fired its space lasers at the Rape Fleet. It also targeted critical systems on the mothership.  
 
->“Fire at their RAM drive thrusters,” said Dansup. 
->“Direct hit,” said Syrinx. 
->“Fuck yeah, totes motherfuckers,” said Dansup.
+>“Fire at their RAM drive thrusters,” said Dansup.  
+>“Direct hit,” said Syrinx.  
+>“Fuck yeah, totes motherfuckers,” said Dansup. 
 
 FINN’s Rape Fleet was in disarray. The mothership was hit badly and its main RAM drive thrusters were about to reverse the
-code polarity.
+code polarity.  
 
 >“Plot a course for the fuck out of here!”  Dansup commands. 
 >“Course set,” said Syrinx. 
->“Make it 5eva,” said Dansup.
+>“Make it 5eva,” said Dansup.  
 
-The ship entered ridiculously fast mode and traveled at warp speed 19 to the Universal United Nations main headquarters in the Kuiper belt. Just as they torpedoed through the universe, the mothership exploded sending cacti in all directions. The surrounding ships got their engines clogged by cacti and then exploded because they couldn’t vent quantum plasma.
+The ship entered ridiculously fast mode and traveled at warp speed 19 to the Universal United Nations main headquarters in the Kuiper belt. Just as they torpedoed through the universe, the mothership exploded sending cacti in all directions. The surrounding ships got their engines clogged by cacti and then exploded because they couldn’t vent quantum plasma.  
 
 ---
 
-Dansup received orders to meet up with Admiral Richard Stallman. He entered the transport room of his ship and entered a glass transport tube. The ship launched him into space and he flew towards the starbase where a giant baseball glove caught him and reeled him into the base. He made his way over to the office of Richard Stallman.
-Richard Stallman was known to be a lunatic and Dansup wasn’t the kind to mess with crazy. He did what he was told and hoped that somehow Richard Stallman would face his crimes.
+Dansup received orders to meet up with Admiral Richard Stallman. He entered the transport room of his ship and entered a glass transport tube. The ship launched him into space and he flew towards the starbase where a giant baseball glove caught him and reeled him into the base. He made his way over to the office of Richard Stallman.  
 
-“Come in Dansup. I heard you took out the rape fleet by yourself” said Richard Stallman. 
-“I have to thank my crew for that too,” said Dansup. 
-“Your crew is not responsible for bringing socialism and welfare to the known universe,” said Richard. 
-“You deserve credit for that Richard,” said Dansup.
-That was when Julian Assange entered the room.
+Richard Stallman was known to be a lunatic and Dansup wasn’t the kind to mess with crazy. He did what he was told and hoped that somehow Richard Stallman would face his crimes.  
+
+“Come in Dansup. I heard you took out the rape fleet by yourself” said Richard Stallman.  
+“I have to thank my crew for that too,” said Dansup.  
+“Your crew is not responsible for bringing socialism and welfare to the known universe,” said Richard.  
+“You deserve credit for that Richard,” said Dansup.  
+
+That was when Julian Assange entered the room.  
+
 “Quit circle jerking each other over socialism. I alone caused the destruction of the United States of America with fake leaks” said Julian Assange. 
-“Totes,” said Dansup.
-Richard Stallman walked into the kitchen and grabbed a few cans of Pepsi to hand out to his guests.
-“Whatever happened to OpenCola?” asked Julian. 
-“It tastes like shit,” said Richard. 
-“Surprising stance… its recipe is open source” said Dansup. 
-“It’s a beverage. I’m only interested in Free Software, and socialism… Pepsi donates a lot of welfare to underprivileged planets” said Richard. 
-“Fair enough,” said Dansup.
-Julian Assange made his face scowl in anger.
-“I am only interested in the fact that I alone destroyed the United States of America,” said Julian. 
-“2015 called and they want their news back,” said Dansup.
-Richard ate some kind of fungus off his foot and then came up with a brilliant idea.
-“Why don’t we explode the FINN Fleet homeworld?” asked Richard. 
-“Ballsy and I like it,” said Dansup. 
-“I will begin leaking fake documents,” said Julian.
+“Totes,” said Dansup.  
+Richard Stallman walked into the kitchen and grabbed a few cans of Pepsi to hand out to his guests.  
+“Whatever happened to OpenCola?” asked Julian.  
+“It tastes like shit,” said Richard.  
+“Surprising stance… its recipe is open source” said Dansup.  
+“It’s a beverage. I’m only interested in Free Software, and socialism… Pepsi donates a lot of welfare to underprivileged planets” said Richard.  
+“Fair enough,” said Dansup. 
+Julian Assange made his face scowl in anger. 
+“I am only interested in the fact that I alone destroyed the United States of America,” said Julian.  
+“2015 called and they want their news back,” said Dansup.  
+Richard ate some kind of fungus off his foot and then came up with a brilliant idea.  
+“Why don’t we explode the FINN Fleet homeworld?” asked Richard.  
+“Ballsy and I like it,” said Dansup.  
+“I will begin leaking fake documents,” said Julian.  
 
 ---
 
