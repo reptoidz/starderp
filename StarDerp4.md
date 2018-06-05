@@ -16,13 +16,13 @@ The U.S.S URLCloud Prime fired its space lasers at the Rape Fleet. It also targe
 
 >“Fire at their RAM drive thrusters,” said Dansup.  
 >“Direct hit,” said Syrinx.  
->“Fuck yeah, totes motherfuckers,” said Dansup. 
+>“Fuck yeah, totes motherfuckers,” said Dansup.  
 
 FINN’s Rape Fleet was in disarray. The mothership was hit badly and its main RAM drive thrusters were about to reverse the
 code polarity.  
 
->“Plot a course for the fuck out of here!”  Dansup commands. 
->“Course set,” said Syrinx. 
+>“Plot a course for the fuck out of here!”  Dansup commands.  
+>“Course set,” said Syrinx.  
 >“Make it 5eva,” said Dansup.  
 
 The ship entered ridiculously fast mode and traveled at warp speed 19 to the Universal United Nations main headquarters in the Kuiper belt. Just as they torpedoed through the universe, the mothership exploded sending cacti in all directions. The surrounding ships got their engines clogged by cacti and then exploded because they couldn’t vent quantum plasma.  
